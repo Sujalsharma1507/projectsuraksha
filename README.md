@@ -1,4 +1,4 @@
-https://next-gen-ai-women-s-9pyu.bolt.host/
+https://v0-project-suraksha-landing-page-hy8giw6ns.vercel.app/#vision
 
 # Project Suraksha - AI-Powered Women's Safety App
 
